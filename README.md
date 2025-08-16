@@ -15,3 +15,12 @@ It was a great introduction to college life and I was eager to dive into the nex
 
 The english test evaluated our understanding of fundamental concepts,  including grammar and writing skills, Comprehension. 
 The math test  included a mix of basic mathematical concepts and numerical aptitude-based questions. I felt well-prepared thanks to the comprehensive lectures and practice problems we had been working on.
+
+# Day 3
+
+# Amazing intwraction with Proffessor jaswinder singh
+The personality whose teaching style I always adore is one I often see on social media platforms like Facebook, YouTube, and Instagram. I was thrilled to see him live on stage. Dr. Jaswinder Singh, the in-charge of IAPT, delivered an engaging lecture on induction and other topics, making them easy to understand. He emphasized that mathematics is the foundation of everything. He is a two different-time National Awardee and has also been honored with the Shiksha Rattan Award. He is the innovator of a unique science program - Jaswin's Science and Mathematics Lab on Wheels. He even shared a trick to remember the total number of bones and where they are located. He also told us the truth about "Bhagwan," revealing that the name itself comprises five elements essential to run this world. It's like this: Bhumi (land), Gagan (sky), Vayu (air), Agni (fire), and Nir (water).
+
+# lec with priya darshani
+The lecture on UHV, highlighting Dr. Priya Darshani's insights, made me realize the importance of living in harmony with ourselves, others, and nature. The speaker emphasized how values like Right Understanding, Relationship, and Physical Facilities play a role in our life, and that a proper balance is important. She reminded us that excitement is a feeling and can't sustain us in the long term. To find lasting happiness, we must focus on activities that help us grow through knowledge and self-reflection. We learned that imagination, pre-conditioning, and natural acceptance play crucial roles in life."
+
