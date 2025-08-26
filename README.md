@@ -24,3 +24,25 @@ The personality whose teaching style I always adore is one I often see on social
 # lec with priya darshani
 The lecture on UHV, highlighting Dr. Priya Darshani's insights, made me realize the importance of living in harmony with ourselves, others, and nature. The speaker emphasized how values like Right Understanding, Relationship, and Physical Facilities play a role in our life, and that a proper balance is important. She reminded us that excitement is a feeling and can't sustain us in the long term. To find lasting happiness, we must focus on activities that help us grow through knowledge and self-reflection. We learned that imagination, pre-conditioning, and natural acceptance play crucial roles in life."
 
+# Day 4
+Our day began with engaging lecture by Astik Sharma sir, he emphasized the importance of English communication in daily life. With his friendly nature, he made the session interactive, suggesting that good listening skills are key to becoming a good speaker.He also taught us  basics of grammar, format foremail writing.
+
+Professor Karan bhalla delivered an insightful chemistry lecture, creatively explaining water chemistry fundamentals, including chemical formulas, sources, and types of water. His teaching approach helped us to  build a solid understanding of the chapter.
+
+# Day 5
+p2p
+ Next we had an informative session with Professor Simarnjit Kaur, where we introduced ourselves and discussed the course structure, including topic allocation. This helped us gain a clearer understanding of the subject curriculum.
+
+ # Day 6
+ Professor Sukhwinder Singh introduced us to geometry apps like zeozebra and Desmos, which help visualize diagrams and derive formulas. These apps enable a better understanding of geometric concepts and their applications.
+ In the next lecture, Professor Simarnjit Kaur initiated our curriculum by revising the fundamental concepts of DC circuits. We reviewed the basics of electricity, including its generation and flow, to reinforce our understanding of the subject.
+
+ satya scholar
+ lakhvir
+
+ # Day 7
+ "Dr. Amit Kamra, Director of the Digital Marketing Club, led an insightful session where he outlined the club's vision, objectives, and activities. The club aims to develop skills in digital marketing and photography among students.conducts sessions on topics like Canva designing, digital marketing and so on. Recruitment opportunities and a competition for freshers to show case their skills were also highlighted.
+ 
+ 
+
+
