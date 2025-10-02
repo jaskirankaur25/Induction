@@ -37,9 +37,10 @@ Professor Karan bhalla delivered an insightful chemistry lecture, creatively exp
  # Day 6
  Professor Sukhwinder Singh introduced us to geometry apps like zeozebra and Desmos, which help visualize diagrams and derive formulas. These apps enable a better understanding of geometric concepts and their applications.
  In the next lecture, Professor Simarnjit Kaur initiated our curriculum by revising the fundamental concepts of DC circuits. We reviewed the basics of electricity, including its generation and flow, to reinforce our understanding of the subject.
- #Satya Scholarship
+ # Satya Scholarship
 A sir introduced us to the Satya Scholarship, offered by Nehru Siddhant Kendra Trust. It supported Ludhiana district students who completed Class 12 with at least 60% marks and pursued undergraduate or master's degrees in engineering, medicine, or commerce. The eligibility criterion was a family annual income not exceeding ₹5 lakhs. Benefits included 100% tuition fee coverage, reimbursement of first-year fees, and provision for hostel charges. Students applied via the Buddhi Food Study portal. The scholarship empowered students to achieve academic goals and build a brighter future.
 
+# Introduction to CML
  Next, Lakhvir Singh Khanna  Sir came and introduced us to the Central For  Multi-Facieated Learning (CML) of the college. He explained that the CMl stood out from the other societies due to its distinct approach. Unlike other societies that focused solely on cultural programs, sports, or specific activities, the CMS prioritized learning and skill development. Its primary objective was to provide a platform where students could explore their interests, discover hidden talents, and enhance their skills. The CMS achieved this by organizing a wide range of activities, including core tech competitions, case study competitions, photography competitions, and seminars on diverse topics such as books, painting, and photography. By participating in these events, students gained valuable experience and received recognition for their accomplishments. This approach enabled students to develop their skills, build confidence, and prepare for future challenges.
 
  # Day 7
